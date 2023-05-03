@@ -1,3 +1,2 @@
 # PP-1.1.3
-
-![](https://disk.yandex.ru/i/ZbSGIQvuejjQpQ)
+![](2023-05-03_15-54-20.png)
